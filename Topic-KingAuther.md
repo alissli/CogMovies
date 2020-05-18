@@ -90,7 +90,7 @@ Part of the cable series "HBO Theatre", this is a videotaped presentation of the
 A scientist awakens King Arthur and his knights, and the forces of good and evil do battle once more.
 
 - [阿瓦隆的迷雾 The Mists of Avalon (2001)](https://movie.douban.com/subject/1308018/):《阿瓦隆的迷雾》改编自畅销奇幻小说，是Uli Edel执导的剧情类迷你剧，安吉里卡·休斯顿、朱丽安娜·玛格丽丝出演，于2001年播出。
-该剧讲述了在亚瑟王传奇背后的众多阴谋门争的故事。[百度网盘](https://pan.baidu.com/s/13nVDH#list/path=%2F&parentPath=%2Fsharelink1124286586-2840254977)
+该剧讲述了在亚瑟王传奇背后的众多阴谋门争的故事。[百度网盘#to recheck](https://pan.baidu.com/s/13nVDH#list/path=%2F&parentPath=%2Fsharelink1124286586-2840254977)
 
 - [亚瑟王 King Arthur (2004)](https://movie.douban.com/subject/1308837/)：亚瑟（克里夫·欧文 Clive Owen 饰）与家人在战乱中失散，被人收养担任杂役工，但魔法师却预言他会成为神圣的英国君主，而亚瑟更是拔出了“石中剑”印证了自己的将来。当他看到国家的混乱现状，发誓要让整个大不列颠群岛脱离罗马人的残暴统治。于是他下定决心要建立一个全新的，充满和平宁静气氛的家园。亚瑟的骁勇善战和超凡的气魄令一些非常优秀的骑士为之折服，纷纷加入他的队伍，组织成著名的“圆桌骑士”。这些英勇的战士在亚瑟的带领下一路势如破竹，取得了令人骄傲的战绩。
 　　骑士们遇到了同样受到凶残萨克森人的侵略“蓝军”——由贫民和流浪汉组成的游击队。为了战斗与他们的领导格温娜维尔（凯拉·奈特丽 Keira Knightley 饰）建立战斗联盟。当两个从前的夙敌携手共同奋斗后，又会发生怎样的故事呢？
