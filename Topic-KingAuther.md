@@ -52,15 +52,16 @@
 # 电影篇
 - [误闯亚瑟王宫 A Connecticut Yankee in King Arthur's Court (1921)](https://movie.douban.com/subject/3627956/)
 - [圆桌武士 Knights of the Round Table (1953)](https://movie.douban.com/subject/1294105/):导演：理查德·托比 主演：罗伯特·泰勒 艾娃·加德纳 梅尔·弗尔 ...,曾获26届奥卡提名
+
 - [武士兰士诺 Lancelot du Lac (1974)](https://movie.douban.com/subject/1297264/):导演: 罗伯特·布列松;编剧: 罗伯特·布列松;主演: Luc Simon / Laura Duke Condominas / 赫伯特·巴尚
+
 - [巨蟒与圣杯 Monty Python and the Holy Grail (1975)](https://movie.douban.com/subject/1294917/)：带着敲椰子壳的仆人，亚瑟王（格雷厄姆·查普曼 Graham Chapman 饰）假装骑着马寻找骑士和城堡，一路看尽民不聊生的景象，和各种鸡同鸭讲的民众交流，最后招揽到一群圆桌骑士。他们一起假装骑着马，到了卡米洛特城堡，在城堡外，他们遇见天上浮现的上帝，要求他们去寻找圣杯。他们试图用“木獾记”攻陷一座法国人的城堡，但是却忘记藏身在木獾里，最终被法国人打得落花流水。经历失败的亚瑟王与骑士们开始分头行动，寻找圣杯的任务意义重大，更多不靠谱的人和事一路等待这群不靠谱的骑士们……
-　　本片是唯一一部进入IMDB前50排名的“无厘头”电影。片中“巨蟒团”六名核心成员每人出演了4-10个角色，包揽片中大部分角色。[百度网盘地址](https://pan.baidu.com/s/1geLAgEn)
-- [黑暗时代 Excalibur (1981)](https://movie.douban.com/subject/1297548/):由约翰·保曼执导，尼科尔·威廉森和加布里埃尔·伯恩出演的冒险奇幻片，于1981年上映。该片讲述了亚瑟王一生具有传奇般神秘色彩的故事。百度网盘地址：https://pan.baidu.com/s/1eQ7qUrS
-- [卡米洛特 Camelot (1982)](https://movie.douban.com/subject/2058616/):
-导演: 马蒂·考纳尔
-编剧: 艾伦·杰伊·勒纳
-主演: 理查德·哈里斯 / Meg Bussert / Richard Muenz / Barrie Ingham / James Valentine / 更多...
-Part of the cable series "HBO Theatre", this is a videotaped presentation of the 1980 Broadway revival of the musical.
+　　本片是唯一一部进入IMDB前50排名的“无厘头”电影。片中“巨蟒团”六名核心成员每人出演了4-10个角色，包揽片中大部分角色。[百度网盘](https://pan.baidu.com/s/1geLAgEn)
+
+- [黑暗时代 Excalibur (1981)](https://movie.douban.com/subject/1297548/):由约翰·保曼执导，尼科尔·威廉森和加布里埃尔·伯恩出演的冒险奇幻片，于1981年上映。该片讲述了亚瑟王一生具有传奇般神秘色彩的故事。[百度网盘](https://pan.baidu.com/s/1eQ7qUrS)
+
+
+
 - [亚瑟王 Arthur the King(1985)](https://movie.douban.com/subject/3222053/):导演：安东尼·福奎阿 主演：艾恩·格拉法德 克里夫·欧文 休·丹西 ...
 
 - [误闯亚瑟王宫 A Connecticut Yankee in King Arthur's Court (1989)](https://movie.douban.com/subject/1779061/):导演: 梅尔·达米斯基
@@ -90,10 +91,10 @@ Part of the cable series "HBO Theatre", this is a videotaped presentation of the
 A scientist awakens King Arthur and his knights, and the forces of good and evil do battle once more.
 
 - [阿瓦隆的迷雾 The Mists of Avalon (2001)](https://movie.douban.com/subject/1308018/):《阿瓦隆的迷雾》改编自畅销奇幻小说，是Uli Edel执导的剧情类迷你剧，安吉里卡·休斯顿、朱丽安娜·玛格丽丝出演，于2001年播出。
-该剧讲述了在亚瑟王传奇背后的众多阴谋门争的故事。[百度网盘#to recheck](https://pan.baidu.com/s/13nVDH#list/path=%2F&parentPath=%2Fsharelink1124286586-2840254977)
+该剧讲述了在亚瑟王传奇背后的众多阴谋门争的故事。[百度网盘](https://pan.baidu.com/s/1eRmZQBw#list/path=%2F)
 
 - [亚瑟王 King Arthur (2004)](https://movie.douban.com/subject/1308837/)：亚瑟（克里夫·欧文 Clive Owen 饰）与家人在战乱中失散，被人收养担任杂役工，但魔法师却预言他会成为神圣的英国君主，而亚瑟更是拔出了“石中剑”印证了自己的将来。当他看到国家的混乱现状，发誓要让整个大不列颠群岛脱离罗马人的残暴统治。于是他下定决心要建立一个全新的，充满和平宁静气氛的家园。亚瑟的骁勇善战和超凡的气魄令一些非常优秀的骑士为之折服，纷纷加入他的队伍，组织成著名的“圆桌骑士”。这些英勇的战士在亚瑟的带领下一路势如破竹，取得了令人骄傲的战绩。
-　　骑士们遇到了同样受到凶残萨克森人的侵略“蓝军”——由贫民和流浪汉组成的游击队。为了战斗与他们的领导格温娜维尔（凯拉·奈特丽 Keira Knightley 饰）建立战斗联盟。当两个从前的夙敌携手共同奋斗后，又会发生怎样的故事呢？
+　　骑士们遇到了同样受到凶残萨克森人的侵略“蓝军”——由贫民和流浪汉组成的游击队。为了战斗与他们的领导格温娜维尔（凯拉·奈特丽 Keira Knightley 饰）建立战斗联盟。当两个从前的夙敌携手共同奋斗后，又会发生怎样的故事呢？[百度网盘-1](https://pan.baidu.com/s/1dFi9IpV)+[百度网盘-2](https://pan.baidu.com/s/1ge9tKMf)
 
 - [亚瑟和他的迷你王国 Arthur et les Minimoys (2006)](https://movie.douban.com/subject/1578685/):为了保住外婆的花园，十岁的亚瑟（弗莱迪·海默 Freddie Highmore 饰）必须找到外公失踪前留下的财宝。按照外公留下的提示，亚瑟终于找到了每年只打开一次的月光之门，进入了迷你墨王国，见到了外公笔记里的美丽的塞琳娜公主和迷你墨人，从他们口中得知四年前外公为了寻找宝藏走入了禁忌城，而统治那里的是“邪恶的M”。在与闯入的敌人战斗时亚瑟从石头里拔出了力量之剑，成为了迷你墨王国的英雄。神剑拔出，迷你墨王国的英雄们必须前往奈克罗鲍利——禁忌城打败“邪恶的M”。亚瑟、塞琳娜公主、王子倍塔克服重重困难终于抵达了M的老巢，传说中的恶魔玛塔扎德就住在这里……
 　　本片是吕克·贝松的第十部电影，传说是他的“收山之作”，历时七年的筹备制作过程，投资达6500万欧元，是法国电影制作史上最昂贵的作品。[百度网盘](https://pan.baidu.com/s/1bntU7DH)
@@ -103,6 +104,7 @@ A scientist awakens King Arthur and his knights, and the forces of good and evil
 - [亚瑟王：斗兽争霸 King Arthur: Legend of the Sword (2017)](https://movie.douban.com/subject/25864124/):影片剧本来自宙比·哈罗德，该剧本基本忠实于托马斯·马洛礼15世纪的文学作品《亚瑟王之死》，剧情颠覆传统，一路探索亚瑟从市井到王座的征途。亚瑟的父亲在他小时候就惨遭杀害，亚瑟的叔叔伏提庚（裘德·洛 Jude Law 饰）篡取王位，剥夺了亚瑟（查理·汉纳姆 Charlie Hunnam 饰）的天赐之权。他浑然不知自己的身世，在城市的穷街陋巷里摸爬滚打着长大，但当他拔出石中剑，他的人生就彻底地天翻地覆了，亚瑟不得不接受自己真正的使命。[百度网盘地址]()
 
 - [亚瑟王：神剑崛起 King Arthur: Excalibur Rising (2017)](https://movie.douban.com/subject/27000024/):距离那场结束传说的卡姆兰战役已经过去19年了，亚瑟王已成传说，而那把代表着无限荣光的王者之剑也已经沉入了湖底，归还给了湖中仙女。可是世界并没有和平，总有不安定因素藏在暗处准备着发动一场战争。亚瑟王忠诚的骑士贝德维尔和大法师梅林一直在寻找到能与黑暗势力对抗的命运之人。阴差阳错，他们找到了亚瑟王的私生子欧文，自幼母亲去世，在社会最底层长大，变成了一个善良勇敢的少年。当梅林告诉他，他的使命之后，欧文选择了逃避，他不确定自己是否真是国王的儿子，自己是否有力量和最强骑士莫德雷德还有邪恶女巫摩根娜抗衡。导演: Antony Smith；编剧: Victor Mawer / 安东尼·史密斯；主演: Adam Byard, Annes Elwy, Gavin Swift | See full cast & crew
+
 - [石中剑 Sword in the Stone (2022)](https://movie.douban.com/subject/26576742/)：
 导演: 胡安·卡洛斯·弗雷斯纳迪罗
 编剧: 布莱恩·考格曼
@@ -115,13 +117,23 @@ A scientist awakens King Arthur and his knights, and the forces of good and evil
 
 
 # 音乐剧
+
+- [卡米洛特 Camelot (1982)](https://movie.douban.com/subject/2058616/):
+导演: 马蒂·考纳尔
+编剧: 艾伦·杰伊·勒纳
+主演: 理查德·哈里斯 / Meg Bussert / Richard Muenz / Barrie Ingham / James Valentine / 更多...
+Part of the cable series "HBO Theatre", this is a videotaped presentation of the 1980 Broadway revival of the musical.
+
 - [亚瑟王传奇 La Légende du Roi Arthur (2016)](https://movie.douban.com/subject/26939903/):音乐剧，[B站播放地址一（中文字幕)](https://www.bilibili.com/video/av9808147/)；[B站播放地址二（中法字幕）](https://www.bilibili.com/video/BV1xJ411J7KH/?spm_id_from=333.788.videocard.0)
 
 # 动画篇
 
 - [石中剑 The Sword in the Stone (1963)](https://movie.douban.com/subject/1306873/):迪士尼1963年出品的经典动画长片，改编自T·H·怀特（T·H·White）的同名小说：《永恒之王》（The Once and Future King，1938年－1958年）系列之一的《石中剑》（The Sword in the Stone，1938年）。本片《石中剑》叙述亚瑟王童年时期的故事。[百度网盘](https://pan.baidu.com/s/1c15HDfU#list/path=%2F)
+
 - [亚瑟和他的圆桌骑士 Arthur! And the Square Knights of the Round Table (1966)](https://movie.douban.com/subject/3097195/)
+
 - [叛逆性百万亚瑟王 叛逆性ミリオンアーサー (2018)](https://movie.douban.com/subject/30176696/)：根据知名手游IP改编的作品，[B站播放地址](https://www.bilibili.com/bangumi/play/ep250697?bsource=douban)
+
 - [亚瑟王和他的正义骑士 King Arthur and the Knights of Justice (1992)](https://movie.douban.com/subject/4089910/)：
   - [土豆视频](动画片《亚瑟王和他的正义骑士》1（英语无字幕版）)：只有一集，效果不灵
 
@@ -147,3 +159,4 @@ A scientist awakens King Arthur and his knights, and the forces of good and evil
 # Changelog
 1. 2020-05-16 int. by aliss
 2. 2020-05-18 add video address and relevant books，description of this doc.
+3. 2020-05-20 add video address and correct the catalog
