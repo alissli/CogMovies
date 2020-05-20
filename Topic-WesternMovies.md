@@ -1,60 +1,60 @@
-阿帕鲁萨镇 Appaloosa             (2008). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2037910/.
-爱是漫长旅程 Love&#39;s Long Journey             (2005). 不详. 见于 2020年5月20日.[网盘地址](https://pan.baidu.com/s/1kVLPi55#list/path=%2F&parentPath=%2F) https://movie.douban.com/subject/2223848/.
-爱在春天来临 Love Comes Softly             (2003). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1418157/.
-安邦定国志 Cheyenne Autumn             (1964). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1949422/.
-安托尼奥之死 O Dragão da Maldade contra o Santo Guerreiro             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2567883/.
-八恶人 The Hateful Eight             (2015). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/25787888/.
-百战宝枪 Winchester &#39;73             (1950). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294076/.
-帮手 The Hired Hand             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3024008/.
-北园寻金记 North to Alaska             (1960). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1295819/.
-被解救的姜戈 Django Unchained             (2012). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/6307447/.
-比利小子 Pat Garrett &amp; Billy the Kid             (1973). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1300027/.
-碧血金沙 The Treasure of the Sierra Madre             (1948). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292516/.
-碧血烟花 Destry Rides Again             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1304404/.
-冰雪河来客 The Man from Snowy River             (1982). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1296810/.
-博士的七张脸 7 Faces of Dr. Lao             (1964). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/3208473/.
-不可饶恕 Unforgiven             (1992). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1293566/.
-苍白骑士 Pale Rider             (1985). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292507/.
-赤胆屠龙 Rio Bravo             (1959). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1298497/.
-大捕杀 La resa dei conti             (1966). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1295048/.
-大地惊雷 True Grit             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1293324/.
-大地惊雷 True Grit             (2010). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3626372/.
-大河恋 A River Runs Through It             (1992). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1292718/.
-大逃狱 There Was a Crooked Man...             (1970). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1865621/.
-大卫克罗传 Davy Crockett, King of the Wild Frontier             (1955). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1308961/.
-大侠谷 The Missouri Breaks             (1976). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1300329/.
-大侠客 Big Jake             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2979673/.
-大贼龙虎斗 The Long Riders             (1980). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294247/.
-大追踪 The Big Trail             (1930). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294355/.
-荡寇志 Jesse James             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1303649/.
-道奇城 Dodge City             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1468236/.
-邓迪少校 Major Dundee             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1302797/.
-敌对分子 Hostiles             (2017). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/26730826/.
-敌我难辨 Свой среди чужих, чужой среди своих             (1974). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1790295/.
-吊人索 Hang &#39;Em High             (1968). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1300406/.
-赌侠马华力 Maverick             (1994). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294962/.
-赌阵奇兵 A Big Hand For the Little Lady             (1966). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/2371040/.
-断背山 Brokeback Mountain             (2005). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1418834/.
-断戈浴血记 Broken Lance             (1954). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1295226/.
-夺命判官 The Life and Times of Judge Roy Bean             (1972). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2052172/.
-俄克拉荷马 Oklahoma!             (1955). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1299862/.
-繁荣小镇 Boom Town             (1940). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1976042/.
-飞箭 Run of the Arrow             (1957). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/2363794/.
-飞燕金枪 Annie Get Your Gun             (1950). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1294870/.
-愤怒的末日 I Giorni dell&#39;ira             (1967). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2354770/.
-风 The Wind             (1928). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1307994/.
-风滚草 Tumbleweeds             (1925). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3440389/.
-疯狂大赛车 The Great Race             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292479/.
-峰火弥天 The Big Sky             (1952). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294511/.
-烽火田园 Shenandoah             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1297080/.
-伏霸神枪 Support Your Local Sheriff!             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1305428/.
-复仇女神 The Furies             (1950). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2139359/.
-岗山最后列车 Last Train from Gun Hill             (1959). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1303221/.
-革命往事 Giù la testa             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1301026/.
-孤鸽镇 Lonesome Dove             (1989). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1304605/.
-关键协议 The Proposition             (2005). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1485411/.
-关山飞渡 Stagecoach             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1298134/.
-哈维姑娘 The Harvey Girls             (1946). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1297459/.
+- 阿帕鲁萨镇 Appaloosa             (2008). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2037910/.
+- 爱是漫长旅程 Love&#39;s Long Journey             (2005). 不详. 见于 2020年5月20日.[网盘地址](https://pan.baidu.com/s/1kVLPi55#list/path=%2F&parentPath=%2F) https://movie.douban.com/subject/2223848/.
+- 爱在春天来临 Love Comes Softly             (2003). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1418157/.
+- 安邦定国志 Cheyenne Autumn             (1964). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1949422/.
+- 安托尼奥之死 O Dragão da Maldade contra o Santo Guerreiro             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2567883/.
+- 八恶人 The Hateful Eight             (2015). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/25787888/.
+- 百战宝枪 Winchester &#39;73             (1950). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294076/.
+- 帮手 The Hired Hand             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3024008/.
+- 北园寻金记 North to Alaska             (1960). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1295819/.
+- 被解救的姜戈 Django Unchained             (2012). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/6307447/.
+- 比利小子 Pat Garrett &amp; Billy the Kid             (1973). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1300027/.
+- 碧血金沙 The Treasure of the Sierra Madre             (1948). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292516/.
+- 碧血烟花 Destry Rides Again             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1304404/.
+- 冰雪河来客 The Man from Snowy River             (1982). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1296810/.
+- 博士的七张脸 7 Faces of Dr. Lao             (1964). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/3208473/.
+- 不可饶恕 Unforgiven             (1992). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1293566/.
+- 苍白骑士 Pale Rider             (1985). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292507/.
+- 赤胆屠龙 Rio Bravo             (1959). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1298497/.
+- 大捕杀 La resa dei conti             (1966). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1295048/.
+- 大地惊雷 True Grit             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1293324/.
+- 大地惊雷 True Grit             (2010). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3626372/.
+- 大河恋 A River Runs Through It             (1992). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1292718/.
+- 大逃狱 There Was a Crooked Man...             (1970). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1865621/.
+- 大卫克罗传 Davy Crockett, King of the Wild Frontier             (1955). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1308961/.
+- 大侠谷 The Missouri Breaks             (1976). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1300329/.
+- 大侠客 Big Jake             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2979673/.
+- 大贼龙虎斗 The Long Riders             (1980). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294247/.
+- 大追踪 The Big Trail             (1930). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294355/.
+- 荡寇志 Jesse James             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1303649/.
+- 道奇城 Dodge City             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1468236/.
+- 邓迪少校 Major Dundee             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1302797/.
+- 敌对分子 Hostiles             (2017). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/26730826/.
+- 敌我难辨 Свой среди чужих, чужой среди своих             (1974). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1790295/.
+- 吊人索 Hang &#39;Em High             (1968). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1300406/.
+- 赌侠马华力 Maverick             (1994). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294962/.
+- 赌阵奇兵 A Big Hand For the Little Lady             (1966). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/2371040/.
+- 断背山 Brokeback Mountain             (2005). 不详. 见于 2020年5月20日. https://movie.douban.com/subject/1418834/.
+- 断戈浴血记 Broken Lance             (1954). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1295226/.
+- 夺命判官 The Life and Times of Judge Roy Bean             (1972). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2052172/.
+- 俄克拉荷马 Oklahoma!             (1955). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1299862/.
+- 繁荣小镇 Boom Town             (1940). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1976042/.
+- 飞箭 Run of the Arrow             (1957). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/2363794/.
+- 飞燕金枪 Annie Get Your Gun             (1950). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1294870/.
+- 愤怒的末日 I Giorni dell&#39;ira             (1967). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2354770/.
+- 风 The Wind             (1928). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1307994/.
+- 风滚草 Tumbleweeds             (1925). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/3440389/.
+- 疯狂大赛车 The Great Race             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1292479/.
+- 峰火弥天 The Big Sky             (1952). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1294511/.
+- 烽火田园 Shenandoah             (1965). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1297080/.
+- 伏霸神枪 Support Your Local Sheriff!             (1969). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1305428/.
+- 复仇女神 The Furies             (1950). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/2139359/.
+- 岗山最后列车 Last Train from Gun Hill             (1959). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1303221/.
+- 革命往事 Giù la testa             (1971). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1301026/.
+- 孤鸽镇 Lonesome Dove             (1989). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1304605/.
+- 关键协议 The Proposition             (2005). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1485411/.
+- 关山飞渡 Stagecoach             (1939). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1298134/.
+- 哈维姑娘 The Harvey Girls             (1946). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/1297459/.
 悍女 Brimstone             (2016). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/6874166/.
 豪侠荡寇 Tall in the Saddle             (1944). 不详. 见于 2020年5月19日. https://movie.douban.com/subject/1295267/.
 豪勇七蛟龙 The Magnificent Seven             (2016). 不详. 见于 2020年5月18日. https://movie.douban.com/subject/10774184/.
